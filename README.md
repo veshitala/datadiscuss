@@ -11,6 +11,6 @@ C) Making appearance more beautiful
 
 D) Innovating something lucrative (Highly recommended)
 
-E) Follow these guidelinaes if you can't think by your own , i might be wrong
+E) Follow these guidelines if you can't think by your own , i might be wrong
 
 F) Suggest and implement anything that comes in your mind
